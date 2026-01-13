@@ -1,1 +1,1 @@
-<img width="1536" height="1024" alt="ChatGPT Image Jan 13, 2026, 05_52_42 AM" src="https://github.com/user-attachments/assets/4de04866-abfd-4450-9ff9-144532d486c6" />
+<img width="2048" height="1365" alt="purrfect_nfo_pro_flowers_blue_transparent" src="https://github.com/user-attachments/assets/433433f9-ee88-4960-8bd2-19f9aef35999" />
